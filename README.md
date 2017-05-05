@@ -1,3 +1,3 @@
 # csgo
 
-time to go on vacation
+time to go on VACation
